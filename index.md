@@ -1,5 +1,4 @@
-Here you can say lots of fun things about your site.
-
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+欢迎，陌生人。
+……
+并没有期待会有人来到这里呢。
+不过既然来了，那不妨从第一篇开始看看吧。
